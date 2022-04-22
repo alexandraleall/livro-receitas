@@ -14,6 +14,7 @@
 
 1. Coloque o polvilho em uma tigela grande;
 2.  À parte, aqueça o sal, o leite e o óleo;
+2. À parte, aqueça o sal, o leite e o óleo;
 3. Quando ferver, escalde o polvilho com essa mistura, mexa muito bem para desfazer pelotinhas;
 4. Deixe esfriar;
 5. Acrescente os ovos, um a um, alternando com o queijo e sovando bem após cada adição;
